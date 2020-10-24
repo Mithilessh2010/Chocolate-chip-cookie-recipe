@@ -1,3 +1,4 @@
+# Procedure
 1. Heat oven to 375°F.
 2. Stir together flour, cocoa, baking soda and salt. Beat butter, granulated sugar, brown sugar and vanilla in large bowl on medium speed of mixer until creamy. 
 3. Add eggs, beat well. ...
